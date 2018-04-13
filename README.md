@@ -19,3 +19,6 @@ Antconc - обе версии программы у меня не поддерж
 А вот train встречается реже в качестве мотива и напоминания, memento mori
 ![alt text](https://sun1-3.userapi.com/c840428/v840428332/75fb4/ltH18LROfWY.jpg )
 ![alt text](https://sun1-3.userapi.com/c840428/v840428332/75fcc/mcXwkqLOD-0.jpg )
+Слово child встречается чаще, но любви уступает
+![alt text](https://sun1-2.userapi.com/c840428/v840428332/75fbc/qqM7mXV-2kA.jpg )
+![alt text](https://sun1-3.userapi.com/c840428/v840428332/75fcc/mcXwkqLOD-0.jpg )
